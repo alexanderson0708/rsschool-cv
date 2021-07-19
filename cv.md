@@ -22,3 +22,4 @@
 * (2016-2020) “Russian university of oil and gas (national research university) named after I. M. Gubkin” in Tashkent (Republic of Uzbekistan) 
 7. # The level of English language
 * English (*B1*)
+>Thanks fo watching my CV
